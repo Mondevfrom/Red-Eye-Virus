@@ -1,6 +1,6 @@
 Hello, This is Mondevfrom.
 I would like to inform you that I am not responsible for any problem on your computer after running the virus.
-If you've got a question, Feel free to ask me on Email- zeynal31lion@gmailcom
+If you've got a question, Feel free to ask me on Email- zeynal31lion@gmail.com
 There will be no source code, Cause if you ruin there something, You will have to send your computer to trash.
 
 
